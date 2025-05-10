@@ -1,0 +1,1 @@
+# trucchi-Scatter-Slots-gratis
